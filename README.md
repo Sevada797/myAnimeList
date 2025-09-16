@@ -48,34 +48,34 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Horimiya | Anime | Finished |
 | Kaiju no 8 | Anime | Ongoing |
 | Heavenly Delusion | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
-| Naruto | Anime | Finished |
+| Chainsaw man | Anime | Ongoing |
+| Dr. Stone | Anime | Ongoing |
+| Fairy Tail | Anime | Finished |
+| The Rising of the Shield Hero | Anime | Finished |
+| Vindland Saga | Anime/Manga | Finished |
+| The eminence in shadow | Anime | Dropped |
+| Hell's paradise | Anime | Dropped |
+| Cheat magician | Anime | Finished |
+| Dead mount death play | Anime | Ongoing |
+| The Reincarnation of the Strongest Exorcist in Another World | Anime | Finished |
+| Detective conan | Anime | Dropped |
+| Berserk of gluttony | Anime/Manga | Dropped |
+| Akatsuki no yona | Anime | Ongoing |
+| Samurai champloo | Anime | Dropped |
+| Arifureta | Anime | Dropped |
+| Zom 100 | Anime | Finished |
+| Teogonia | Anime | Finished |
+| Parasyte | Anime | Finished |
+| Worlds trigger | Anime | Finished |
+| Overlord | Anime | Finished |
+| Wistoria: Wand and Sword | Anime | Finished |
+| The Wrong Way to Use Healing Magic | Anime | Dropped |
+| The kingdoms of ruin | Anime | Finished |
+| The Aristocrat's Otherworldly Adventure | Anime | Finished |
+| Sword of the Demon Hunter или Kijin Gentoushou | Anime | Finished |
+| Great pretender | Anime | Dropped |
+| Redo of healer | Anime | Finished |
+| SAO | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
