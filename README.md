@@ -22,6 +22,7 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Reincarnated as the seventh prince | Anime | Ongoing | ✅️ |
 | Moonlight fantasy | Anime | Ongoing | ✅️ |
 | One punch man | Anime/Manga | Ongoing | ✅️ |
+| Mob psycho | Anime | Ongoing | ✅️ |
 | Lazarus | Anime | Finished | ✅️ |
 | The World's Finest Assassin Gets Reincarnated in Another World as an Aristocrat | Anime | Ongoing | ✅️ |
 | Sweet reincarnation | Anime | Finished | ✅️ |
