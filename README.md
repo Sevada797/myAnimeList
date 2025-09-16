@@ -1,6 +1,7 @@
 # myAnimeList
 Hey, I'll drop here my watched/read anime/manga/manhwa list
 
+STATUS: Currently uploaded nearly 30% of what I watched/read
 
 # myAnimeList
 Hey, I'll drop here my watched/read anime/manga/manhwa list
