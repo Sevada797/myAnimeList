@@ -76,6 +76,15 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Great pretender | Anime | Dropped |
 | Redo of healer | Anime | Finished |
 | SAO | Anime | Finished |
+| Akame ga kill | Anime | Finished |
+| Magi | Anime | Dropped |
+| Wise Man’s Grandchild | Anime | Finished |
+| The Faraway Paladin | Anime | Dropped |
+| Braves Of The Six Flowers | Anime | Finished |
+| Record of Ragnarok | Anime | Finished |
+| Cautious Hero | Anime | Finished |
+| Fire Force | Anime | Dropped |
+| Wind Breaker | Anime | Ongoing |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
@@ -85,6 +94,74 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+
+
 
 
 | Kabaneri | Anime | Finished |
