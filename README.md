@@ -38,7 +38,7 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Blue exorcist | Anime | Dropped |
 | Black clover | Anime | Dropped |
 | Black lagoon | Anime | Dropped |
-| Jormungand | Anime | Dropped |
+| Jormungand | Anime | Dropped | ✅️ |
 | Seraph of the end | Anime | Finished |
 | Dororo | Anime | Finished | ✅️ |
 | GOHS | Anime | Finished |
