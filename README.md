@@ -6,7 +6,7 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 Hey, I'll drop here my watched/read anime/manga/manhwa list
 
 | Name | Type (Anime/Manga/Manhwa) | Status (Finished/Dropped/Ongoing) | Fav? |
-|------|---------------------------|---------------------------------|------|
+|------|---------------------------|---------------------------------|---|
 | Naruto | Anime | Finished | ✅️ |
 | HunterxHunter | Anime | Finished | ✅️ |
 | Death Note | Anime | Finished | ✅️ |
