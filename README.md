@@ -39,6 +39,43 @@ Hey, I'll drop here my watched/read anime/manga/manhwa list
 | Jormungand | Anime | Dropped |
 | Seraph of the end | Anime | Finished |
 | Dororo | Anime | Finished |
+| GOHS | Anime | Finished |
+| To Your Eternity | Anime | Dropped |
+| Kekai-sensen | Anime | Dropped |
+| Blue lock | Anime | Ongoing |
+| Mashle | Anime | Finished |
+| Ranking of Kings | Anime | Finished |
+| Horimiya | Anime | Finished |
+| Kaiju no 8 | Anime | Ongoing |
+| Heavenly Delusion | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
+| Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
 | Naruto | Anime | Finished |
